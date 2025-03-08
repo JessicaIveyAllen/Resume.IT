@@ -1,4 +1,4 @@
-# README## Jessica Ivey Allen
+Jessica Ivey Allen
 
 **Location:** Charlotte, NC <br>
 
