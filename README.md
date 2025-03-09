@@ -108,17 +108,7 @@ Technical Support Specialist with expertise in Tier 2 troubleshooting, network d
 ---
 
 ### Additional Skills
-
-- English Proficiency
-- Basic Mathematical Skills
-- Typing Speed: 35+ WPM
-- Flexible and Adaptable
-- Professional Work Ethic
-- Available Nights and Weekends
-- Private Workspace with No Distractions
-- Compliant with Clean Desk / Camera Requirements
-
----
+Happiness 
 
 For more information, feel free to reach out via email or connect with me on LinkedIn or GitHub!
 
